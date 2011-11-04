@@ -1,4 +1,12 @@
-In that case, you may have a bunch of snapshots of your project that you can compare and inspect from. You can even use this model to fairly effectively share changes with someone. If you zip up your project at a known state and put it on your website, other developers can download that, change it and send you a patch pretty easily.In that case, you may have a bunch of snapshots of your project that you can compare and inspect from. You can even use this model to fairly effectively share changes with someone. If you zip up your project at a known state and put it on your website, other developers can download that, change it and send you a patch pretty easily.In that case, you may have a bunch of snapshots of your project that you can compare and inspect from. You can even use this model to fairly effectively share changes with someone. If you zip up your project at a known state and put it on your website, other developers can download that, change it and send you a patch pretty easily.In that case, you may have a bunch of snapshots of your project that you can compare and inspect from. You can even use this model to fairly effectively share changes with someone. If you zip up your project at a known state and put it on your website, other developers can download that, change it and send you a patch pretty easily.
+In that case, you may have a bunch of snapshots of your project that you can compare and inspect from. You can even use this model to fairly effectively share changes with i am mad man 		i am mad man 		i am mad man 
+i am mad man 		i am mad man 		i am mad man 
+i am mad man 		i am mad man 		i am mad man 
+i am mad man 		i am mad man 		i am mad man 
+i am mad man 		i am mad man 		i am mad man 
+i am mad man 		i am mad man 		i am mad man 
+i am mad man 		i am mad man 		i am mad man 
+i am mad man 		i am mad man 		i am mad man 
+i am mad man 		i am mad man 		i am mad man nch of snapshots of your project that you can compare and inspect from. You can even use this model to fairly effectively share changes with someone. If you zip up your project at a known state and put it on your website, other developers can download that, change it and send you a patch pretty easily.
 
 hi mad man
 hi mad man
